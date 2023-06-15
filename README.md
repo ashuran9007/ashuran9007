@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hello, I am Ashuran9007
+I am a gamer, weeb and pc enthusiast.
 <!--
 **ashuran9007/ashuran9007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
